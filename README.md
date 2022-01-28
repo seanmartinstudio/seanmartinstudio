@@ -1,1 +1,1 @@
-⚡️ Los Angeles based producer, currently studying Full Stack web development at Flatiron School ⚡️
+⚡️ Los Angeles based producer, currently studying Sofware Engineering at Flatiron School ⚡️
