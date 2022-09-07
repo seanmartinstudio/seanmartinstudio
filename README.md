@@ -1,1 +1,1 @@
-⚡️ Los Angeles based Software Engineer and Producer ⚡️
+⚡️ Software Engineer and Producer ⚡️
