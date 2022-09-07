@@ -1,1 +1,1 @@
-⚡️ Los Angeles based producer, currently studying Software Engineering at Flatiron School ⚡️
+⚡️ Los Angeles based Software Engineer and Producer ⚡️
