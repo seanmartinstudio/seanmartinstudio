@@ -1,1 +1,1 @@
-⚡️ Software Engineer and Producer ⚡️
+⚡️ Artist and Software Developer ⚡️
