@@ -1,1 +1,1 @@
-⚡️ Producer and Software Developer ⚡️
+art + technology = 😎
